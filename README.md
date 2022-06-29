@@ -10,4 +10,5 @@
 
 #### To download the password protected file,
 
-![image](https://user-images.githubusercontent.com/41186067/176378254-ca184b66-112c-4165-8808-1b104e882a37.png)
+![image](https://user-images.githubusercontent.com/41186067/176378476-bd51c256-6985-451c-a11c-893134f8aa4e.png)
+
